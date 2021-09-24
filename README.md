@@ -1,0 +1,4 @@
+- im whyz so you can call me whyz.
+- im not a expert programmer but im beginner:)
+- im alone, anyone wanna be friends?:D
+- so welcome to my profile:D
